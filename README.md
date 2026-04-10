@@ -1,6 +1,7 @@
 # 🐜 Pest Control Tulsa, OK – Complete Guide (2026)
 
 Looking for reliable pest control in Tulsa, OK? This guide helps homeowners understand pest problems, treatment costs, and how to choose the right exterminator.
+![Pest Control Tulsa](https://www.getpesthelp.com/assets/images/pest-tulsa-hero.webp)
 
 👉 Get a free quote instantly:  
 https://www.getpesthelp.com/tulsa-pest-control/
