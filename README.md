@@ -45,8 +45,10 @@ Many pest problems require urgent treatment, especially:
 - Bed bug outbreaks  
 - Rodent invasions  
 
-👉 Find fast same-day service:  
-https://www.getpesthelp.com/tulsa-pest-control/
+
+👉 [pest control in Tulsa](https://www.getpesthelp.com/tulsa-pest-control/)  
+👉 [Tulsa exterminator services](https://www.getpesthelp.com/tulsa-pest-control/)  
+👉 [termite control Tulsa](https://www.getpesthelp.com/tulsa-pest-control/)  
 
 ---
 
